@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @amiensa
-- 👀 I’m interested in web development
+- 👀 I’m interested in web development and cyber-security and ethical-hacking
 - 🌱 I’m currently learning literally everything in this world
 - 💞️ I’m looking to collaborate on ...
 - 📫 you could add me cuz you will need me someday when i get better or maybe the best . 
